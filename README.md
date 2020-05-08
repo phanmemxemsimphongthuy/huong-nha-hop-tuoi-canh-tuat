@@ -1,0 +1,45 @@
+<p dir="ltr" style="text-align:justify"><span style="font-family:arial,helvetica,sans-serif"><span style="font-size:14px"><strong>Theo dân gian, việc xây nhà, mua nhà có hướng hợp tuổi mang đến tài lộc, vận may để gia chủ làm ăn lên như diều gặp gió. Người sinh năm 1970 hợp hướng nhà nào để gia đạo luôn bình an, sung túc.</strong></span></span></p>
+
+<p dir="ltr" style="text-align:justify"><span style="font-family:arial,helvetica,sans-serif"><span style="font-size:14px"><strong>1. Tuổi Canh Tuất 1970 mệnh gì, cung gì?</strong></span></span></p>
+
+<p dir="ltr" style="text-align:justify"><span style="font-family:arial,helvetica,sans-serif"><span style="font-size:14px"><span style="background-color:transparent; color:rgb(0, 0, 0)">Người sinh năm 1970 mệnh Thoa Xuyến Kim nghĩa là vàng trang sức, tuổi Canh Tuất là con chó trong 12 con giáp. Xét về cung mệnh thì nam cung Chấn hành Mộc thuộc Đông Tứ Mệnh, nữ cung Chấn hành Mộc thuộc Đông Tứ Mệnh. Biết được người sinh năm Canh Tuất mệnh gì, cung gì sẽ giúp xác định được hướng hợp tuổi gia chủ đem đến sinh khí, cát khí, vận may tránh được những rủi ro, bất lợi trong cuộc sống.</span></span></span></p>
+
+<p dir="ltr" style="text-align:justify"><span style="font-family:arial,helvetica,sans-serif"><span style="font-size:14px"><span style="background-color:transparent; color:rgb(0, 0, 0)">Xem thêm: </span><a href="https://myspace.com/phongthuyhoangtam/post/activity_profile_82316482_bb10b743d6854377802c617d68a14852/comments" style="text-decoration-line: none;"><strong>Hướng nhà hợp tuổi Mậu Thân 1968</strong></a></span></span></p>
+
+<p dir="ltr" style="text-align:justify"><span style="font-family:arial,helvetica,sans-serif"><span style="font-size:14px"><strong>2. Vì sao phải xem hướng nhà tốt hợp tuổi Canh Tuất 1970</strong></span></span></p>
+
+<p dir="ltr" style="text-align:justify"><span style="font-family:arial,helvetica,sans-serif"><span style="font-size:14px"><span style="background-color:transparent; color:rgb(0, 0, 0)">Theo phong thuỷ thì hướng nhà chính là hướng luồng khí tác động vận hành vào nhà ảnh hưởng tới gia chủ và các thành viên trong gia đình. Ngôi nhà là địa điểm mọi người cùng sinh sống thực hiện các hoạt động nghỉ ngơi, học tập, ăn uống... hàng ngày, nếu nhà có hướng hợp tuổi gia chủ sinh năm Canh Tuất thì nó tác động tích cực tới sức khoẻ, sự nghiệp, tài vận, công danh, sự hưng thịnh của mọi người. Điều này từ xưa đã được ông cha hết sức coi trọng, phải xem xét kỹ lưỡng trước khi chọn mua nhà hoặc xây nhà.</span></span></span></p>
+
+<p dir="ltr" style="text-align:justify"><span style="font-family:arial,helvetica,sans-serif"><span style="font-size:14px"><span style="background-color:transparent; color:rgb(0, 0, 0)">Bên cạnh đó, </span><a href="https://www.scoop.it/topic/huong-nha-theo-phong-thuy/p/4107104007/2019/04/22/phan-tich-tuoi-canh-tuat-1970-hop-huong-nha-nao-nhat-e-tranh-luc-sat" style="text-decoration-line: none;"><span style="background-color:transparent; color:rgb(17, 85, 204)">hướng nhà hợp tuổi 1970</span></a><span style="background-color:transparent; color:rgb(0, 0, 0)"> sẽ giúp con người an tâm hơn trong cuộc sống, làm việc gì cũng tự tin, thoải mái, tâm lý, sức khoẻ ổn định. Để mọi việc được tốt đẹp, thuận lành tránh được nhưng hung hiểm tác động đến các thành viên trong gia đình.&nbsp;</span></span></span></p>
+
+<p dir="ltr" style="text-align:justify"><span style="font-family:arial,helvetica,sans-serif"><span style="font-size:14px"><strong>3. Các hướng xấu mà tuổi 1970 nên tránh</strong></span></span></p>
+
+<p dir="ltr" style="text-align:justify"><span style="font-family:arial,helvetica,sans-serif"><span style="font-size:14px"><span style="background-color:transparent; color:rgb(0, 0, 0)">Người sinh năm 1970 khi làm nhà, chọn mua nhà cần tránh các hướng sau đây:</span></span></span></p>
+
+<p dir="ltr" style="text-align:justify"><span style="font-family:arial,helvetica,sans-serif"><span style="font-size:14px"><span style="background-color:transparent; color:rgb(0, 0, 0)">Hướng Tuyệt mệnh là hướng Tây có thể khiến gia chủ gặp nhiều tai ương, chia ly, cách xa, không phát triển được.</span></span></span></p>
+
+<p dir="ltr" style="text-align:justify"><span style="font-family:arial,helvetica,sans-serif"><span style="font-size:14px"><span style="background-color:transparent; color:rgb(0, 0, 0)">Hướng Ngũ quỷ là hướng Tây Bắc có thể khiến gia chủ làm ăn thất bại, thị phi, cãi lộn, tiêu tốn tài sản.</span></span></span></p>
+
+<p dir="ltr" style="text-align:justify"><span style="font-family:arial,helvetica,sans-serif"><span style="font-size:14px"><span style="background-color:transparent; color:rgb(0, 0, 0)">Hướng Lục sát là hướng Đông Bắc tác động xấu tới gia chủ, làm xáo lộn quan hệ tình cảm, dễ gặp tai nạn, thù hận, kiện tụng.</span></span></span></p>
+
+<p dir="ltr" style="text-align:justify"><span style="font-family:arial,helvetica,sans-serif"><span style="font-size:14px"><span style="background-color:transparent; color:rgb(0, 0, 0)">Hướng Hoạ hại là hướng Tây Nam có thể gây ra sự tổn hại về sức khoẻ, tài sản, tai nạn, chết chóc.</span></span></span></p>
+
+<p dir="ltr" style="text-align:justify"><span style="font-family:arial,helvetica,sans-serif"><span style="font-size:14px"><span style="background-color:transparent; color:rgb(0, 0, 0)">Người sinh năm 1970 tuyệt đối không được phạm phải các hướng xấu trên đây để tránh phát sinh những vấn đề rủi ro, bất lợi cho bản thân và gia đình.</span></span></span></p>
+
+<p dir="ltr" style="text-align:justify"><span style="font-family:arial,helvetica,sans-serif"><span style="font-size:14px"><span style="background-color:transparent; color:rgb(0, 0, 0)">Hướng nhà tốt hợp tuổi Canh Tuất cả nam và nữ nên là:</span></span></span></p>
+
+<p dir="ltr" style="text-align:justify"><span style="font-family:arial,helvetica,sans-serif"><span style="font-size:14px"><span style="background-color:transparent; color:rgb(0, 0, 0)">Hướng Sinh khí (Ly) là hướng Chính Nam sẽ mang đến cát khí, hanh thông, sinh sôi nảy nở tiền tài phúc lộc.</span></span></span></p>
+
+<p dir="ltr" style="text-align:justify"><span style="font-family:arial,helvetica,sans-serif"><span style="font-size:14px"><span style="background-color:transparent; color:rgb(0, 0, 0)">Hướng Thiên Y (Khảm) là hướng Chính Bắc sẽ tăng cường vận may, tài lộc, các mối quan hệ tốt đẹp, hoá giải những vướng mắc trong cuộc sống.</span></span></span></p>
+
+<p dir="ltr" style="text-align:justify"><span style="font-family:arial,helvetica,sans-serif"><span style="font-size:14px"><span style="background-color:transparent; color:rgb(0, 0, 0)">Hướng Phúc Đức (Tốn) là hướng Đông Nam thể hiện sự hoà thuận, vững vàng, bền lâu, êm đẹp tăng thêm cát khí.</span></span></span></p>
+
+<p dir="ltr" style="text-align:justify"><span style="font-family:arial,helvetica,sans-serif"><span style="font-size:14px"><span style="background-color:transparent; color:rgb(0, 0, 0)">Hướng Phục vị (Chấn) là hướng Chính Đông sẽ củng cố sức khoẻ, mang đến sự tiến bộ của bản thân, gặp nhiều may mắn.</span></span></span></p>
+
+<p dir="ltr" style="text-align:justify"><span style="font-family:arial,helvetica,sans-serif"><span style="font-size:14px"><span style="background-color:transparent; color:rgb(0, 0, 0)">Người sinh năm 1970 có thể dựa vào thông tin về hướng nhà hợp tuổi tự xem hướng nhà của mình đang ở có phù hợp hay không bằng công cụ trên trang phongthuyso.vn. Nếu ngôi nhà của quý vị trúng hướng xấu thì có thể sử dụng vật trấn yểm như gương bát quái hoặc các vật phẩm phong thuỷ khác như sim phong thuỷ, tỳ hưu và tượng Phật.</span></span></span></p>
+
+<p dir="ltr" style="text-align:justify"><span style="font-family:arial,helvetica,sans-serif"><span style="font-size:14px"><span style="background-color:transparent; color:rgb(0, 0, 0)">&ldquo;Tậu trâu, xây nhà, cưới vợ&rdquo; những công việc quan trọng hàng đầu trong đời con người đều cần có sự chuẩn bị chu đáo. Để bản thân gia chủ tuổi Canh Tuất 1970 và các thành viên cùng sinh sống trong ngôi nhà có sự ổn định, bình yên, làm ăn tấn tới thì hãy xem kỹ các hướng nhà hợp tuổi trước khi quyết định mua nhà hoặc xây nhà.</span></span></span></p>
+
+<p dir="ltr" style="text-align:justify"><span style="font-family:arial,helvetica,sans-serif"><span style="font-size:14px"><span style="background-color:transparent; color:rgb(0, 0, 0)">Nguồn tham khảo: </span><span style="background-color:transparent; color:rgb(17, 85, 204)"><a href="https://phongthuyso.vn/huong-nha-tuoi-canh-tuat.html" style="text-decoration-line: none;">https://phongthuyso.vn/huong-nha-tuoi-canh-tuat.html</a></span></span></span></p>
+
+<div>&nbsp;</div>
